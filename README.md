@@ -2,7 +2,7 @@
 - 👀 I’m interested in Data analysis, machine learning and generative AI
 - 🌱 I’m currently learning Bachelor Degree in Data sience at Eastern Africa Statistical Center
 - 💞️ I’m looking to collaborate on Data analysis, machine learning and generative AI
-- 📫 How to reach me +255 758796634, kimarohendrack@gmail.com
+- 📫 How to reach me +255 756906637, kimarohendrack@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
